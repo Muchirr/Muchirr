@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Muchirr
 - 👀 I’m interested in programming and coding
 - 🌱 I’m currently learning at Technical University of Kenya pursuing Bachekor of science in mathematics.
-- 💞️ I’m looking to collaborate on any one my field please
+- 💞️ I’m looking to collaborate on any one on my field please
 
 - 📫 How to reach me at my email muchirisamuelelvis@gmail.com
 
